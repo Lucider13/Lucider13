@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Lucider13
+- 👀 I’m interested in web money and crypto 
+- 🌱 I’m currently learning hacking
+- 💞️ I’m looking to collaborate on money project
+- 📫 How to reach me TELEGRAM: LUCIDER13
